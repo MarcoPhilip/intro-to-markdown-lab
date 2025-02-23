@@ -8,7 +8,7 @@ _Beef Sinigang_ is a Filipino dish known for its refreshing and sour tamarind-ba
 Any versions of *Beef Sinigang* can be prepared with different types of ingredients especially when it comes to vegetables or the type of beef cut you include. All these versions vary depending on your preference but the most important thing to remember is to always include beef bones. Beef bone will add a rich flavor to your broth. For this recipe, we will use beef short ribs because it has a good amount of fats in them, fats are flavor!
 
 * **Protein**- 3 lbs of Beef Short Ribs
-
+* **Water**- 10 to 12 cups of water.
 * **Red Onions**- one whole onion as big as a baseball is enough.
 * **Riped Tomatoes**- we prefer riped tomatoes as they provide sweetness to our broth. We can start with 2 tomatoes but you can always a little more.
 * **Taro**- this can be served whole along with the other veggies or turned into paste to provide a thicker broth.
